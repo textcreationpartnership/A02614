@@ -35,11 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The baptizing of a Turke A sermon preached at the Hospitall of Saint Katherin, adioyning vnto her Ma
+
+1. To the Right Worſhipfull RAPHE ROKEBY Eſquier, Maiſter of the Hoſpitall of S. Katherine, and alſo one of the Maiſters of her Maieſties Courte of Requeſts, health & wealth in the Lord Ieſus.
+
 #####Body#####
-The baptizing of a Turke A sermon preached at the Hospitall of Saint Katherin, adioyning vnto her Ma
+Math. 5. Verſe .16.Let your light ſo ſhine before men, that they may ſee your good works, and glorif
 #####Back#####
-The baptizing of a Turke A sermon preached at the Hospitall of Saint Katherin, adioyning vnto her Ma
+
+1. ¶After the Sermon ended, the Turke confeſſed in the Spaniſh tongue before the face of the congregation, the Preacher out of Pulpit propounding the queſtions and receiuing the anſwers by skilfull Interpretors, in ſumme as followeth.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
